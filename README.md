@@ -2,7 +2,13 @@
   <img src="https://files.catbox.moe/c4nxxf.png" width="1000"/>
 </div>
 
-HHE𝗟𝗟𝗢𝗢OOO!!! T𝗵is 𝗮𝗰c 𝗶s 𝗺ainly 𝘂sed 𝗳or 𝗺y 𝗚i-𝗛un 𝘀kins, 𝗶f 𝘆ou're 𝗰onfused 𝗺y 𝗺ain 𝗶s @wondercatfuI (𝘄ith 𝘁he 𝗮ll 𝗰aps i) 𝗴o 𝗰heck 𝗶t 𝗮sap 𝗶f 𝘆ou 𝗽lease! 
+<div id="header" align="center">
+  <img src="https://files.catbox.moe/kbdonr.jpeg" width="1000"/>
+</div>
+
+Guys Guys!! Selfie With My Copier! >_< Go And Give Them A Big Shout-out! Their GitHub: @junho-inho-my-shayla
+
+HHE𝗟𝗟𝗢𝗢OOO!!! T𝗵is 𝗮𝗰c 𝗶s 𝗺ainly 𝘂sed 𝗳or 𝗺y 𝗚i-𝗛un 𝘀kins, 𝗶f 𝘆ou're 𝗰onfused 𝗺y 𝗺ain 𝗶s @wondercatfuI (𝘄ith 𝘁he 𝗮ll 𝗰aps i) 𝗴o 𝗰heck 𝗶t 𝗮sap 𝗶f 𝘆ou 𝗽lease!  
 
 <div id="header" align="center">
   <img src="https://files.catbox.moe/1b5o61.png" width="1000"/>
